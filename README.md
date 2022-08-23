@@ -1,6 +1,6 @@
 ### Olá, eu sou a Vanessa Falcão! 👋
 
-🔄 Sou uma Jornalista em transição de carreira para Programação
+🔄 Uma Jornalista em transição de carreira para a área de Tecnologia
 - 😄 Pronouns: ela/dela
 
 -->
